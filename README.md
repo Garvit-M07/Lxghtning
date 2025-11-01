@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lxghtning, a 17 year old student and programmer
+- 👋 Hi, I’m @Garvit, a 17 year old student and programmer
 - 👀 I’m interested in working on new Unique Projects
 
 
